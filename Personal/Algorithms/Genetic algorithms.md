@@ -1,0 +1,1 @@
+![[Genetic algorithms 2026-06-20 20.26.42.excalidraw]]
